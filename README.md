@@ -1,0 +1,7 @@
+![Screenshot (24)](https://github.com/MeetGhodi/Midterm/assets/159205611/925c47f9-245c-4374-a834-0c45073fc348)
+![Screenshot (23)](https://github.com/MeetGhodi/Midterm/assets/159205611/adc280df-5ad7-4603-bc6f-613bff0d75a4)
+![Screenshot (22)](https://github.com/MeetGhodi/Midterm/assets/159205611/45db0a62-eb7f-4a5a-b7e5-4eb6d9048f5d)
+![Screenshot (21)](https://github.com/MeetGhodi/Midterm/assets/159205611/cc3d4c94-9ad9-4d53-9c1b-83a2797f7ebb)
+![Screenshot (20)](https://github.com/MeetGhodi/Midterm/assets/159205611/4897ce4e-d57f-43fa-8574-3b6761a2f960)
+![Screenshot (19)](https://github.com/MeetGhodi/Midterm/assets/159205611/f62c6f27-3bcb-4871-9b72-615f9936b8ec)
+![Screenshot (18)](https://github.com/MeetGhodi/Midterm/assets/159205611/a3be5f64-5d80-4a1a-9c27-5a3bf1b895f3)
